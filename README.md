@@ -1,1 +1,2 @@
-# testea
+# João....
+Atividades 1 e 2 estão aqui
